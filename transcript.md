@@ -13,21 +13,24 @@ sparingly.
 
 Jim Davis tribute set to the entire original motion picture score of "Kundun" by
 Philip Glass featuring the philosophical musings of John Blyth Barrymore.
-[1:19](https://youtu.be/NAh9oLs67Cw?t=1m19s)
+
 Lasagna Cat
 Tributes to Jim Davis
 
 Philip Glass
 Kundun: The Motion Picture Soundtrack
-1:18
+
+[1:19](https://youtu.be/NAh9oLs67Cw?t=1m19s)
 When I was 18, 18 years old, I saw for the first time in my life, I saw a vision
 of clarity. I saw a comic strip, a 3-panel comic strip, that, though simple as
 it seemed, changed me. Changed my being. Changed who I am. Made me who I am.
 Enlightened me.
 
+[1:45](https://youtu.be/NAh9oLs67Cw?t=1m45s)
 The strip: Garfield. The comic strip was new, no more than maybe a month and a
 half since inception, since coming into existence. And there it was before me in
 print, I saw it. A comic strip. What was it called? Garfield.
+
 
 The story here is of a man, a plain man. He is Jon, but he is more than that. I
 will get to this later, but first let us just say that he is Jon, a plain man.
