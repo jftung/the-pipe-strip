@@ -336,7 +336,7 @@ man, or rather, man who engages in foot binding. A body modification for women,
 on top of being without his pipe, or impotent. This is a man facing extreme
 inner turmoil. The panels tell that story subconsciously.
 
-Notic the background wall shading in the first panel points inward toward Jon in
+Notice the background wall shading in the first panel points inward toward Jon in
 the second panel. The sharp tapered end of the purple pipe in the third frame
 also points at Jon in the second panel. Inward. The eye is drawn to the center
 panel. You can connect these points and draw a triangle across the panels, and
@@ -834,7 +834,7 @@ quesion operates on the level of a literal question, but it also examines the
 nature of our reality. Jim Davis' epistemological approach tells us something
 about the human condition. Jon's thoughts remain the focal point of this strip.
 
-The comic is quite literally centered around his though, "Now where could my
+The comic is quite literally centered around his thought, "Now where could my
 pipe be?" This is reality. This is where cognition, and the power and function
 of the mind take over. As Plato believe, the body is just a shell for Jon
 Arbuckle. Yes, he can use his physical body to read his paper, or cross his
@@ -874,7 +874,7 @@ And life may not be what we think.
 Life brings to mind a beating heart, breathing lungs, blinking eyes, but the
 real life is in our imaginations. And who better embodies the definition of
 imagination if not a simple man? A cartoonist, who puts his ideas to paper so
-that they may live on, that our childrn, and our children's children, and their
+that they may live on, that our children, and our children's children, and their
 children's children's children can access the wealth of ideas that have
 accumulated thus far. They will plug themselves into an information grid and
 they will have access.
