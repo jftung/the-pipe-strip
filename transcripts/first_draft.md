@@ -614,8 +614,8 @@ answer here. Like this."
 
 As overexcited as I was, I- I managed to take in her response. She said, "Yes, a
 cat in this room would have a hard time differentiating the wall from the
-floor. Add to that cats known spacial confusion and you have the makings of a
-CAT RAGE ROOM." Now, she informed me that this isn't exactly common knowledge
+floor." Add to that cats known spacial confusion and you have the makings of a
+cat Rage Room. Now, she informed me that this isn't exactly common knowledge
 among cat owners, but a seasoned cat owner, someone particularly perceptive will
 have picked up on it. So what's incredible here is not only is Garfield's
 behavior symbolic of the Devil and all the evil constructs in the world, but-
@@ -653,7 +653,7 @@ aggressive anger? Passive. It is passive because if Garfield has a problem with
 Jon specifically, he's choosing a passive way of dealing with that problem. He
 has not confronted Jon and said, "Jon I have a problem with the way you've
 decorated this room. As a cat, I am colorblind, and this sends me into a rage.
-You've created a RAGE ROOM for me here and I don't like it. I want you to change
+You've created a Rage Room for me here and I don't like it. I want you to change
 it."
 
 Instead of that confrontational approach, though, Garfield has chosen to steal
