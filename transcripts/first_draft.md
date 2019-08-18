@@ -514,7 +514,7 @@ of this brilliant work of art. The practical mixing, meeting, agreeing with the
 spiritual, it is all here.
 
 But spirituality is not an easy thing to confront. You might find yourself able
-to wrap your mind around a simple math problem or a basic newspaper article, or,
+to wrap your mind around a simple math problem or a basic newspaper article, or [*sic*],
 but intellect is much less subjective.
 
 What is sprituality, and how have I found spiritual peace and serenity in
