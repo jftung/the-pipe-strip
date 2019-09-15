@@ -805,7 +805,7 @@ just have to find that rare strip.
 
 Speaking philosophically about the entire Garfield franchise, it's an incredibly
 accurate depiction of life. Its bold lines and bright colors are merely a
-facade, a, a red herring, a lie. This cartoon is not a cartoon at all. It is not
+facade, a- a red herring, a lie. This cartoon is not a cartoon at all. It is not
 caricature. It is not caricature despite adopting caricature as its visual
 style and tone.
 
@@ -842,7 +842,7 @@ legs, but these inputs of touch, sight, hearing, *et cetera*, these senses are
 the triggers of the mind, as we see here, the mind is something greater. It is
 the originator of ideas, and ideas are forever, immortal.
 
-Immortality through thought, a, a major theme in literature and philosophy. And
+Immortality through thought, a- a major theme in literature and philosophy. And
 isn't that what Mr. Jim Davis, himself, has achieved? Will he live forever?
 
 The universe will continue to spread and spread outward, and entropy will turn
