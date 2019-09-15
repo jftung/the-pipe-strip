@@ -777,10 +777,16 @@ thing.
 The first ideology that comes to mind when thinking of objects in the tangible
 world is pragmatism. Is Jon Arbuckle a pragmatist? His beliefs stem from a
 useful, coherent view of his environment. A sort of cause and effect
-understanding of his world that helps him A, deduce that his pipe is missing,
-and B, catch his cat Garfield using the pipe. This kind of empirical and logical
-thinking lends credence to the idea that Jon is indeed a pragmatist, although it
-is hard to entirely ignore the rest of the Garfield comic canon.
+understanding of his world that helps him: 
+
+<ol type="A">
+  <li>deduce that his pipe is missing, and</li>
+  <li>catch his cat Garfield using the pipe.</li>
+</ol>
+
+This kind of empirical and logical thinking lends credence to the idea that Jon
+is indeed a pragmatist, although it is hard to entirely ignore the rest of the
+Garfield comic canon.
 
 While Garfield is consistently anarchic, and embraces the chaos and absurdidty
 of life, Jon Arbuckle exhibits an erratic, unpredictable mix of philosophical
