@@ -736,9 +736,13 @@ comic in a way." Someone looks for something, can't find it.
 
 But yes, that probably happens billions of times a day around the world. But
 then this plumber put his hands on his hips. Then he scratched his head, and he
-said aloud, "Now where could my pipe wrench be?" *Gasp*. Well at this I leaped
-off the bench, sandwich still in hand, and I rushed over. I shouted, "What was
-that you said?"
+said aloud, "Now where could my pipe wrench be?" 
+
+[John Blyth Barrymore, upon reliving the moment, is staggered; his head whirls
+in shock but he reconnects with the camera in a flabbergasted gaze. He gasps.]
+
+Well at this I leaped off the bench, sandwich still in hand, and I rushed over.
+I shouted, "What was that you said?"
 
 He looked at me and said, "What? I can't find my pipe wrench."
 
